@@ -12,5 +12,5 @@ so our platform is not for software people , we make superb models and no need t
 
 in the end , there will be no human traders , since models are better and will always or mostly eat them . amd in the end all models compete with each other . 
 
-think more on this idea . 
+think more on this idea . and make it better .
 
